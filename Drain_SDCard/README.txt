@@ -1,5 +1,5 @@
 Cybersecurity campers,
-You all are proving to be a cleaver bunch.
+You all are proving to be a clever bunch.
 Time might be running SHORT
 but I don't think you will be able
 to follow my trail for LONG.
